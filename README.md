@@ -1,0 +1,1 @@
+# On-Decomposig-Systems-of-Polynomial-Equations-With-Finitely-Many-Solutions
